@@ -2,6 +2,8 @@
 
 **Extreme Dinosaur Runner** is a **legendary endless runner** game that millions have played—but never like this before. This is not your ordinary offline game. It's been **upgraded with epic speed, blazing visuals, and unstoppable action**.
 
+## <a href="https://1kb.link/KDgQBb">👉 Click To Play Dinosaur Game Unblocked 👈</a>
+
 Originally known as the **Chrome Dino Game**, this version transforms it into a **hyper-casual adventure** with **arcade-style gameplay** that keeps you hooked for hours.
 
 ### 🔥 **Why You’ll Love This Dinosaur Game:**
